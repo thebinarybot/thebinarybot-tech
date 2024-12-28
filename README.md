@@ -1,1 +1,2 @@
-# thebinarybot-tech
+# Tech Recommendations, Reviews and More
+
