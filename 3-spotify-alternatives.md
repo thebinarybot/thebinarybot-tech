@@ -14,7 +14,6 @@
 
 ---
 
-**Connect With Me:**  
-[Linktree](https://linktr.ee/connectwiththebinarybot)  
+[Connect With Me](https://linktr.ee/connectwiththebinarybot)  
 
 Cheers 🍻
